@@ -1,3 +1,3 @@
 # Zwykla strona, nic specjalnego.
-123
-123
+
+Będe na niej miał rzeczy, które mi się przydadzą w przyszłości.
